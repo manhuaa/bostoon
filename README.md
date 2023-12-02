@@ -1,4 +1,4 @@
-# bostoon
+# bestoon/涩涩韩漫
 https://bestoon.icu-最新最全韩国漫画
 # 每天签到，最新韩漫免费看
 # 地址
